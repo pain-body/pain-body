@@ -2,7 +2,7 @@
 <p align="center"> <img width="540" height="31" alt="tumblr_4cd2d57a7239151108fc701a3e1ce912_696813ef_540" src="https://github.com/user-attachments/assets/fb9ed6fb-f780-46f7-9faf-b40cefa968d5" />
 
 
-  <p align="center"> <ins> jeremy or ask name
+  <p align="center"> <ins> ▊▊▊▊▊▊ or ask name
     <p align="center"> i love mah computer , all my friends r in it !
 <div align="center">
   
